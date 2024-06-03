@@ -5,6 +5,7 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Im fat af
+- i don't like anime (i like the sky)
 
 <!---
 itsdannyit/itsdannyit is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
